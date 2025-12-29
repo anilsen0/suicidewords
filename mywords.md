@@ -1,1 +1,1 @@
-Hayat hem bir armağan hem de bir lanet. Sayısız güzel şey ve bir o kadar da kötü şey var. Hepsininden azıcıkta olsa tattım. Varlığım artık tükenmeye yüz tuttuğu için artık sadece yazabilirim. 
+Hayat hem bir armağan hem de bir lanet. Sayısız güzel şey ve bir o kadar da kötü şey var. Hepsininden azıcıkta olsa tattım. Varlığım artık tükenmeye yüz tuttuğu için artık sadece yazabilirim. Öncelikle belirtmeliyim ki hassas bir bireyseniz bunu okumayın. Kendim de hassas olduğum için bunu söylüyorum. Ben bunu yazacağım. Filtre kullanmadan. Romantize etmeden. 
